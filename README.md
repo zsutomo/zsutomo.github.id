@@ -1,2 +1,2 @@
-# zsutomo.github.io
+# zsutomo
 My Profile
